@@ -9,4 +9,7 @@ Meu nome é Thiago Soares
 ### Você pode entrar em contato comigo por:📫
 
 00001105293452sp@al.educacao.sp.gov.br
+
 Instagram: @thi.soaresz
+
+![](https://media1.tenor.com/m/fXfaqPLEnWIAAAAd/escorregando-yuri-alberto.gif)
