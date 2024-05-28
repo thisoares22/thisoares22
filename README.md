@@ -1,4 +1,4 @@
-## Hi there 👋
+## Seja Bem Vindo/a!
 
 <!--
 **thisoares22/thisoares22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
